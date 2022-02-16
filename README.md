@@ -21,8 +21,18 @@ and experience a joyful blockchain zone
 where real assets and digital assets can be linked.
 
 🌐Join Our All Social Media
-🌐 Official Website (http://www.zoybloc.com/)
-📧 Telegram group (https://t.me/zoyblocglobal)
-📧 WhitePaper (https://www.zoybloc.net/_files/ugd/44f7bb_8d15e52d8e094583a76eaa90ef348e54.pdf)
-📧 Medium (https://medium.com/@zoybloc)
-📝 Twitter (https://twitter.com/zoybloc)
+
+🌐 Official Website
+(http://www.zoybloc.com/)
+
+📧 Telegram group
+(https://t.me/zoyblocglobal)
+
+📧 WhitePaper
+(https://www.zoybloc.net/_files/ugd/44f7bb_8d15e52d8e094583a76eaa90ef348e54.pdf)
+
+📧 Medium
+(https://medium.com/@zoybloc)
+
+📝 Twitter
+(https://twitter.com/zoybloc)
