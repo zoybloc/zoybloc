@@ -36,3 +36,9 @@ where real assets and digital assets can be linked.
 
 📝 Twitter
 (https://twitter.com/zoybloc)
+
+ZOYBLOC NFT Game - Operation Blood
+https://www.operationblood.com/
+
+ZOYBLOC NFT Game - Project D
+https://www.mnmproject.com/
