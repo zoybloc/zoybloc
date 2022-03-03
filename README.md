@@ -29,7 +29,7 @@ where real assets and digital assets can be linked.
 (https://t.me/zoyblocglobal)
 
 📧 WhitePaper
-(https://www.zoybloc.net/_files/ugd/44f7bb_8d15e52d8e094583a76eaa90ef348e54.pdf)
+(https://www.zoybloc.net/_files/ugd/44f7bb_aca6aae13a064c659df7fb34a0b00f40.pdf)
 
 📧 Medium
 (https://medium.com/@zoybloc)
